@@ -8,3 +8,4 @@
     I think it can go both ways u why. I think if u wanna just work in roblox vitual store just for the money it will work but your communication skills will be awful. But if u really want to learn skills though a computer screen i think it will work perfectly. I know this because on the off
   icial IKEA website it says " This can help player get a virtual experience and help with skill just like real life". This evidence proves my point that ikea virtual store can help with skils just like in real life.
 # September 30, 2025
+# october 20, 2025
