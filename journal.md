@@ -11,3 +11,4 @@
 # october 20, 2025
 # october 27, 2025 Markdown table
 # november 3, 2025 
+# november 17, 2025
