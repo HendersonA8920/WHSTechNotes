@@ -12,3 +12,5 @@
 # october 27, 2025 Markdown table
 # november 3, 2025 
 # november 17, 2025
+# december 1, 2025
+  A real job that heavily relies on drones is a Drone Software Engineer, also known as a drone programmer or engineer. Programmers in this role develop the intricate software and algorithms that allow drones to fly autonomously, process sensor data in real-time, and execute specific tasks like obstacle avoidance, mission planning, and data collection. For example, a drone mapping mission requires software to automatically adjust the drone's height to follow terrain, ensuring consistent and complete data capture for accurate 3D models. According to a search on ZipRecruiter, the average annual salary for a Drone Software Engineer in Texas is approximately $137,441 a year. To enter this field, a bachelor's degree in engineering (such as aerospace, electrical, or computer science) is typically required, in addition to strong programming skills in languages like C++, Python, and ROS (Robot Operating System). Commercial operators must also obtain an FAA Part 107 Remote Pilot Certificate to legally operate drones for business purposes in the U.S..
