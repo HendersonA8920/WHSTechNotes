@@ -22,3 +22,5 @@
  # January 12, 2025 
  Autcraft was created by Stuart Duncan in 2013 to provide a safe haven for autistic children to play the online game Minecraft after his own son was a target of relentless bullying and harassment in unmoderated public servers. The server addresses the problem of hostile online environments where neurodivergent individuals, who may struggle with social cues and sarcasm, are often exploited and targeted by trolls and griefers, leading to psychological distress and isolation. 
 Safe spaces are essential online to protect vulnerable users from various harms prevalent in unmoderated platforms, including cyberbullying, exposure to inappropriate content, online predation, and identity theft. Unmoderated spaces can lead to severe psychological harm and even physical danger, as threats of violence and self-harm content are common issues. Autcraft's design choices, such as strict rules against bullying, 24/7 moderation by a dedicated staff (including parents and autistic adults), and a whitelist application process, ensure a kind and supportive community. 
+# January 20, 2025
+# January 27, 2025
