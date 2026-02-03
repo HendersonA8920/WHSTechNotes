@@ -17,11 +17,12 @@
 # december 8, 2025
 # december 15, 2025 
  MY plans for winter break is to sleep, play the game, and work out
- # January 6, 2025 
+ # January 6, 2026
  The way i used technlogy over the break was using my controller to pay the game, plugging up my ps5, and using my tv for visual
- # January 12, 2025 
+ # January 12, 2026 
  Autcraft was created by Stuart Duncan in 2013 to provide a safe haven for autistic children to play the online game Minecraft after his own son was a target of relentless bullying and harassment in unmoderated public servers. The server addresses the problem of hostile online environments where neurodivergent individuals, who may struggle with social cues and sarcasm, are often exploited and targeted by trolls and griefers, leading to psychological distress and isolation. 
 Safe spaces are essential online to protect vulnerable users from various harms prevalent in unmoderated platforms, including cyberbullying, exposure to inappropriate content, online predation, and identity theft. Unmoderated spaces can lead to severe psychological harm and even physical danger, as threats of violence and self-harm content are common issues. Autcraft's design choices, such as strict rules against bullying, 24/7 moderation by a dedicated staff (including parents and autistic adults), and a whitelist application process, ensure a kind and supportive community. 
-# January 20, 2025
-# January 27, 2025
-# January 29, 2025 The test i took was TSI and i feel confident about my performace because i actually tried
+# January 20, 2026
+# January 27, 2026
+# January 29, 2026 The test i took was TSI and i feel confident about my performace because i actually tried
+# February 2, 2026
