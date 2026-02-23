@@ -17,7 +17,7 @@
 # december 8, 2025
 # december 15, 2025 
  MY plans for winter break is to sleep, play the game, and work out
- # January 6, 2026
+# January 6, 2026
  The way i used technlogy over the break was using my controller to pay the game, plugging up my ps5, and using my tv for visual
  # January 12, 2026 
  Autcraft was created by Stuart Duncan in 2013 to provide a safe haven for autistic children to play the online game Minecraft after his own son was a target of relentless bullying and harassment in unmoderated public servers. The server addresses the problem of hostile online environments where neurodivergent individuals, who may struggle with social cues and sarcasm, are often exploited and targeted by trolls and griefers, leading to psychological distress and isolation. 
@@ -27,3 +27,4 @@ Safe spaces are essential online to protect vulnerable users from various harms 
 # January 29, 2026 The test i took was TSI and i feel confident about my performace because i actually tried
 # February 2, 2026
 # February 10, 2026 I do enjoy football, superbowl was trash, shoulda had nba youngboy perform
+# February 23, 2026
