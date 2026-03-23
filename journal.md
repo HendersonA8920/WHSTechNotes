@@ -28,3 +28,4 @@ Safe spaces are essential online to protect vulnerable users from various harms 
 # February 2, 2026
 # February 10, 2026 I do enjoy football, superbowl was trash, shoulda had nba youngboy perform
 # February 23, 2026
+# March 23, 2026 i choose my bracket by my own knowledge, the one that surprised me was high point, using ai.
