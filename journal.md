@@ -29,3 +29,4 @@ Safe spaces are essential online to protect vulnerable users from various harms 
 # February 10, 2026 I do enjoy football, superbowl was trash, shoulda had nba youngboy perform
 # February 23, 2026
 # March 23, 2026 i choose my bracket by my own knowledge, the one that surprised me was high point, using ai.
+# march 30, 2026 The upset that surpised me in the tournament is uconn vs duke, the upset happened because they didnt hold the ball and cayden boozer turnover led to a three to win the game by uconn. The factors i think are team chemistry, predictions could be wrong because its a prediction on guranted.
