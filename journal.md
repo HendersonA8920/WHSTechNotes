@@ -24,10 +24,16 @@
 Safe spaces are essential online to protect vulnerable users from various harms prevalent in unmoderated platforms, including cyberbullying, exposure to inappropriate content, online predation, and identity theft. Unmoderated spaces can lead to severe psychological harm and even physical danger, as threats of violence and self-harm content are common issues. Autcraft's design choices, such as strict rules against bullying, 24/7 moderation by a dedicated staff (including parents and autistic adults), and a whitelist application process, ensure a kind and supportive community. 
 # January 20, 2026
 # January 27, 2026
-# January 29, 2026 The test i took was TSI and i feel confident about my performace because i actually tried
+# January 29, 2026 
+The test i took was TSI and i feel confident about my performace because i actually tried
 # February 2, 2026
-# February 10, 2026 I do enjoy football, superbowl was trash, shoulda had nba youngboy perform
+# February 10, 2026 
+I do enjoy football, superbowl was trash, shoulda had nba youngboy perform
 # February 23, 2026
-# March 23, 2026 i choose my bracket by my own knowledge, the one that surprised me was high point, using ai.
-# march 30, 2026 The upset that surpised me in the tournament is uconn vs duke, the upset happened because they didnt hold the ball and cayden boozer turnover led to a three to win the game by uconn. The factors i think are team chemistry, predictions could be wrong because its a prediction on guranted.
-# April 20, 2026 This is a free week
+# March 23, 2026 
+i choose my bracket by my own knowledge, the one that surprised me was high point, using ai.
+# march 30,
+2026 The upset that surpised me in the tournament is uconn vs duke, the upset happened because they didnt hold the ball and cayden boozer turnover led to a three to win the game by uconn. The factors i think are team chemistry, predictions could be wrong because its a prediction on guranted.
+# April 20, 2026
+This is a free week
+# April 27, 2026 
